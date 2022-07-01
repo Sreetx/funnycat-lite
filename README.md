@@ -4,12 +4,19 @@ Funnycat lite adalah versi keci dari Funnycat yang asli. fungsinya sama-sama men
 Dukung terus ya guys!!
 
  Github:
+ 
         https://github.com/Sreetx/
+ 
  Intagram:
+ 
         https://www.instagram.com/memelucubikin/
+ 
  YouTube:
+ 
         https://youtube.com/channel/UCscuxW-ZUViftGyJ9Z1cPbw/
+ 
  Website:
+ 
         https://progpem.blogspot.com/2022/04/hom.html/
 	
 Selamat menggunakan....
